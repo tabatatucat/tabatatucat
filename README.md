@@ -2,4 +2,4 @@
 - Sou formada em Ciênciais Sociais
 - Estudante de Análise de Dados pela Ebac
 ##
-🌹 Sou apaixonada por organização pessoal, sistemas ágeis, pesquisas qualitativas e quantitativas, além disso, principalemnte em aprender coisas novas.
+🌹 Sou apaixonada por organização pessoal, sistemas ágeis, pesquisas qualitativas e quantitativas, além disso, em aprender coisas novas.
